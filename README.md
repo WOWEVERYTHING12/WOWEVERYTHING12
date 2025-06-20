@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @WOWEVERYTHING12
+- 👋 Hi, I’m Hasan
 - 👀 I’m interested in coding, swimming, running, technology and studying different fields.
 - 🌱 I’m learning computer science, business, photography, cinema photography, art, design and gaming.
 - 💞️ I’m looking to collaborate on coding to become the next software engineer, cyber security, or product manager.
